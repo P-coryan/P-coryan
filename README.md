@@ -23,7 +23,7 @@
 
 Estoy abierto a colaborar en proyectos interesantes y desafiantes. Si tienes una idea o proyecto en mente, ¡no dudes en contactarme!
 
-📫 Puedes encontrarme en [LinkedIn](www.linkedin.com/in/patricio-carrasco-o-ryan-739898262).
+📫 Puedes encontrarme en [LinkedIn](https://www.linkedin.com/in/patricio-carrasco-o-ryan-739898262).
 
 ¡Gracias por visitar mi perfil!
 
